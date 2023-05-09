@@ -1,3 +1,3 @@
-# darmowev-dolce.github.io
-100%legit
-https://assets.reedpopcdn.com/fortnite-darmowe-v-dolce-h.jpg/BROK/resize/1200x1200%3E/format/jpg/quality/70/fortnite-darmowe-v-dolce-h.jpg
+# wiipedia-2.0.io
+Definicja: Ogólnoświatowa sieć komputerowa, będąca zbiorem milionów sieci lokalnych i pojedynczych komputerów z całego świata, oparta na protokole komunikacyjnym TCP/IP. W ramach sieci Internet dostępne są usługi takie jak: WWW, poczta elektroniczna,
+https://www.youtube.com/watch?v=vZA1Ik78sbk
